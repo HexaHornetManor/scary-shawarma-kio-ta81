@@ -1,4 +1,4 @@
-#  
+#  scary shawarma kiosk hidden Script is the best scary shawarma kiosk Script, featuring unlimited stamina and one-hit kill. Safe and powerful for all
 
 
 
